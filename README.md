@@ -1,0 +1,2 @@
+# E-Textile-Synth
+William Perry is a Designer from St. Louis, Missouri who is focusing on Urban Planning at the University of Washington - Seattle. Inspired by the connection humans form with inanimate objects, he looks to capture the different feelings derived by the human to object relationship. With an interest centered around electric vehicles, William strives to rethink the way we use control systems to form deeper rooted experiences. In order to facilitate organic interactions, William dives into the emotional cues derived from the way objects look and behave. 
